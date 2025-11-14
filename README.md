@@ -4,9 +4,16 @@
 
 Hello - You May Refer To Me As Lamp , Myst , or Silly idm
 
+🌿═════∘◦❁◦∘═════🌿
+
 Please INT. I love when people INT with me unless I have any form of DNI in my name!! 
 
+🌿═════∘◦❁◦∘═════🌿
+
 General DNI List ::
+
+·•—–٠✤٠—–•·
+
 Pro/Darkshippers. Please dont even approach or try to sit with me. I do not like the use of either of these, even if used to cope. I still find them gross and would prefer you do not int with me!
 Non-sharing yumeshippers. 
 Supporters of any problematic fandoms [TCOALL , HH/HB, South Park, Yansim, ext]
@@ -18,12 +25,24 @@ Anyone who is actively trying to engage in any talk about politics
 Skin theives 
 Problematic Systems [Yes, these exist but does not span to ALL systems]
 
+🌿═════∘◦❁◦∘═════🌿
+
 Fandoms that should IWEC but can still INT ::
+
+·•—–٠✤٠—–•·
+
 Dandy's World 
+
 Regretevator 
+
 Jojo's Bizzare Adventure
+
 Jujutsu Kaisen 
+
 Sprunki
+
 Countryhumans , Apphumans , Planethumans , [Any]humans
+
+🌿═════∘◦❁◦∘═════🌿
 
 Lampert kinniee X]
