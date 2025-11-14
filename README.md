@@ -15,14 +15,23 @@ General DNI List ::
 ·•—–٠✤٠—–•·
 
 Pro/Darkshippers. Please dont even approach or try to sit with me. I do not like the use of either of these, even if used to cope. I still find them gross and would prefer you do not int with me!
+
 Non-sharing yumeshippers. 
+
 Supporters of any problematic fandoms [TCOALL , HH/HB, South Park, Yansim, ext]
+
 P3d0s or Z00s. Do not come anywhere near me. Ty. 
+
 Homophobes , Transphobes , Queerphobic , Anti-Xeno/Neo Pronouns
+
 Anti-Furry , Anti-Furry
+
 Racists 
+
 Anyone who is actively trying to engage in any talk about politics
+
 Skin theives 
+
 Problematic Systems [Yes, these exist but does not span to ALL systems]
 
 🌿═════∘◦❁◦∘═════🌿
