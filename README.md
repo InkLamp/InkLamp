@@ -1,6 +1,6 @@
 ⋆˚࿔ The Joke Will Be On You 𝜗𝜚˚⋆
 
-<img src="https://media.tenor.com/P3WwVZn3b9cAAAAM/regretevator-lampert.gif" alt="Lampert Regretevator GIF - Lampert Regretevator 3008 - Discover &amp; Share GIFs"/><img width="220" height="215" alt="image" src="https://github.com/user-attachments/assets/eba0aad5-cc04-4dc4-801d-559bc9b9612a" />
+<img src="https://media.tenor.com/P3WwVZn3b9cAAAAM/regretevator-lampert.gif" alt="Lampert Regretevator GIF - Lampert Regretevator 3008 - Discover &amp; Share GIFs"/>
 
 Hello - You May Refer To Me As Lamp , Myst , or Silly idm
 
